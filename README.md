@@ -1,0 +1,1 @@
+tekst jakiś piękny
